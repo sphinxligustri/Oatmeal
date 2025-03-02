@@ -12,6 +12,7 @@ When working from home, I prepare this around breakfast, and eat it for lunch. F
 
 ![PXL_20250302_091251086 MP](https://github.com/user-attachments/assets/ed55dc69-6d65-492b-bc60-82c279ab836c)
 
-![DSC_31372](https://github.com/user-attachments/assets/bcb9224d-ad52-4654-913d-9e85dcf4f6a3)
+![DSC_3137](https://github.com/user-attachments/assets/9c196c3c-cd12-4d7a-bc75-3118a04e5288)
+
 
 
