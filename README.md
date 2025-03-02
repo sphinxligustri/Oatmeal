@@ -5,6 +5,14 @@ How much water is needed is deterministic and when you get a hang of it, it's a 
 
 When working from home, I prepare this around breakfast, and eat it for lunch. For someone, "executively dysfunct", like me it's a go-to recipe for carrying me through the afternoon. 
 
+I haven't yet tried, but you could prepare it at home and bring it on a hike. Just make sure it doesn't spill in your backpack.
+
+You need
+* Ingredients - make you own recipe!
+* Insulated food jar of right size - depends on your appetite.
+* Hot water - I use an electric kettle.
+* I like to add frozen fruits when it's ready.
+
 
 ![PXL_20241026_144533459](https://github.com/user-attachments/assets/f0577184-7cf5-44eb-a3a5-56707c285334)
 
